@@ -17,7 +17,7 @@ Minors, dni. I might be 17 but I don't want anyone below that exposed to what I 
 ‎‎
 ‎‎‎" An insufferable bonehead who's driven off of helping others. "
 
-[](https://sukunacest.straw.page/) . [](https://rentry.co/sukunacests)
+[straw](https://sukunacest.straw.page/) . [rentry](https://rentry.co/sukunacests)
 
 Note that some websites are a WIP ... Lol.‎
 
