@@ -13,6 +13,8 @@ W2I Commonly to interact, but I usually respond in public if i really want to.
 
 Minors, dni. I might be 17 but I don't want anyone below that exposed to what I do.
 
+I hide some antis that I think will pester me in the future, sorry in advance!
+
 ![](https://64.media.tumblr.com/ce59aa3a885100b2c473551b121d2d0e/c94e1ef95b5d17c2-7e/s1280x1920/b230af2aadd2ab8041dd6e43c272f2ad5767c384.pnj)
 ‎‎
 ‎‎‎" An insufferable bonehead who's driven off of helping others. "
